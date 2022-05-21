@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Inferno0o
+- 👀 I’m interested in coding and making yt videos
+-  Like coding like a maniac
